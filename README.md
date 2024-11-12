@@ -147,6 +147,12 @@
 ![image](https://github.com/user-attachments/assets/49fe75ea-2bb6-4862-926d-904b28f23a74)
 
 
+### Tiếng việt 1
+![image](https://github.com/user-attachments/assets/651cec50-83b1-4fc0-a754-6b8ae18a70ed)
+![image](https://github.com/user-attachments/assets/6ce054f7-1759-4884-929d-4bd13a39f833)
+![image](https://github.com/user-attachments/assets/6cf27b12-00b6-4ba6-92b1-f2f40d859c44)
+![image](https://github.com/user-attachments/assets/62760107-888b-49b5-b238-8578b389c202)
+![image](https://github.com/user-attachments/assets/39859149-ae7e-4e3e-bde1-7df3d729faf5)
 
 
 
